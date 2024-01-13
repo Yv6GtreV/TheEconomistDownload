@@ -1,3 +1,7 @@
+## 2024-01-13
+- [EBOOK](https://rosefile.net/qkp4mpisw8/The_Economist_2024-01-13.7z.html)
+- [AUDIO](http://audiocdn.economist.com/sites/default/files/AudioArchive/2024/20240113/Issue_9379_20240113_The_Economist_Full_edition.zip)
+
 ## 2024-01-06
 - [EBOOK](https://rosefile.net/2lnnal7ho2/The_Economist_2024-01-06.7z.html)
 - [AUDIO](http://audiocdn.economist.com/sites/default/files/AudioArchive/2024/20240106/Issue_9378_20240106_The_Economist_Full_edition.zip)
