@@ -1,3 +1,7 @@
+## 2024-12-21
+- [EBOOK](https://drive.google.com/file/d/15-2F5tdl3BfjraOnvMJ9ok8IkbIvzew0/view?usp=sharing)
+- [AUDIO](http://audiocdn.economist.com/sites/default/files/AudioArchive/2024/20241221/Issue_9428_20241221_The_Economist_Full_edition.zip)
+
 ## 2024-12-14
 - [EBOOK](https://drive.google.com/file/d/1fSj_G4pLiix-vw3qnG1VccSd_O8dxg-i/view?usp=sharing)
 - [EBOOK](https://rosefile.net/vekio0jrn6/The_Economist_2024-12-14.7z.html)
