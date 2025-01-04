@@ -1,3 +1,6 @@
+## 2025-01-04
+- [EBOOK](https://drive.google.com/file/d/1XsbojtZEMweXHdVihsOp0oJkFpKJKeMq/view?usp=sharing)
+
 # Goodbye 2024 Hello 2025
 
 ## 2024-12-21
