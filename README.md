@@ -1,3 +1,6 @@
+## 2025-07-12
+- [EBOOK](https://drive.google.com/file/d/1iFIR3yEI7zTuxP2SeBo85sEphB7AsK0h/view?usp=sharing)
+
 ## 2025-07-05
 - [EBOOK](https://drive.google.com/file/d/10DN9N52B98iLXQRVpgbgPoNVdnnKps4p/view?usp=sharing)
 
