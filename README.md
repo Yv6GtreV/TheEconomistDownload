@@ -1,3 +1,9 @@
+## 2025-10-18
+- [EBOOK](https://drive.google.com/file/d/1EYvAoQOYKPGuTzMpxU7MgkQB_NzUBXZz/view?usp=sharing)
+
+## 2025-10-11
+- [EBOOK](https://drive.google.com/file/d/1079RHDxXo7--HMErPwPVIiVFm51ThUmC/view?usp=sharing)
+
 ## 2025-10-04
 - [EBOOK](https://drive.google.com/file/d/1s0-R8FmBBgVkZpEtD7PyW3mw6TSggP-0/view?usp=sharing)
 
