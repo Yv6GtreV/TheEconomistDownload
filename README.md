@@ -1,3 +1,6 @@
+## 2025-11-22
+- [EBOOK](https://drive.google.com/file/d/1W3PjspeXGOWU4aU3lANvsj0ETkW9mKEg/view?usp=sharing)
+
 ## The World Ahead 2026
 - [EBOOK](https://drive.google.com/file/d/1VnalXzzeVVH3aHAP9H7aB1ZeOWE4ZFmc/view?usp=sharing)
 
