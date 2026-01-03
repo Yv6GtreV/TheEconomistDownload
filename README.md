@@ -1,3 +1,6 @@
+## 2026-01-03
+- [EBOOK](https://drive.google.com/file/d/1WRhtJ627OvFqoWdKSJQmvE2LwZu5Bp4e/view?usp=sharing)
+
 # Goodbye 2025 Hello 2026
 
 ## 2025-12-20
