@@ -1,3 +1,6 @@
+## 2026-02-14
+- [EBOOK](https://drive.google.com/file/d/1q3ECQK6iJ4hEAaQ8fLLyZqDjTyssJ1qJ/view?usp=sharing)
+
 ## 2026-02-07
 - [EBOOK](https://drive.google.com/file/d/1boag6BjBxxuv5LqSulMVf6cpaaWcejMQ/view?usp=sharing)
 
